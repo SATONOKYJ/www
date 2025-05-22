@@ -1,4 +1,4 @@
-Ciao! io sono Luca Montanari, sono un bumer 
+Ciao! io sono Luca Montanari, sono un boomer 
 
 
 
